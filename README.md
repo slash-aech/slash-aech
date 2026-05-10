@@ -11,4 +11,4 @@ Looking forward to having a great time learning with y'all!
 
 Yes I use a proton mail - harshitbenke@proton.me
 
-No I'm not a freak, you are if you think it's alright to let google be your PA
+No I'm not a freak, maybe
