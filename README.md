@@ -5,10 +5,6 @@
 
 ---
 
-Currently pursuing **B.Tech** at **NIT-Agartala**
+Currently pursuing **Bachelors** at **NIT-Agartala**
 
 Looking forward to having a great time learning with y'all!
-
-Yes I use a proton mail - harshitbenke@proton.me
-
-No I'm not a freak, maybe
